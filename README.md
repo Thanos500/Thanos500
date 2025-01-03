@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Thanos500
-- 👀 I’m interested in hacking
+- 👀 I’m interested in hacking and any computer related job
 - 🌱 I’m currently learning coding and programing
 - 💞️ I’m looking to collaborate on any website
 - 📫 How to reach me rweyabravin@gmail.com
